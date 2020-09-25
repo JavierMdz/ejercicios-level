@@ -1,0 +1,1 @@
+## No termine el ejercicio, pero me gustaria estar a consideracion de backend en nodejs , y si no alcanzo a estar , pues lo acepto totalmente :( gracias por leerme
